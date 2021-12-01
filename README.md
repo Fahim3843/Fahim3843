@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Fahim3843
 - 👀 I’m interested in Web design & development
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... Mobile Application & Game Development.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...+8801845766589 whatsapp
 
